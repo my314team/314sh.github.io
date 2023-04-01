@@ -20,4 +20,5 @@ As the creator of this project, I am looking for opportunities to provide servic
 
 Thank you for your attention, and I look forward to working with you.
 
-Best regards.
+Best regards,
+Eli
