@@ -17,3 +17,5 @@ To ensure transparency and accountability, all data will be recorded on the bloc
 My ultimate goal is to create a sustainable and equitable ecosystem for kids and parents, where they can manage their screen-time and earn cryptocurrency by engaging in productive activities. This project will be started with 0 investment (was bought only this domain 314.sh), and we are looking for followers and donations.
 
 Thank you for your attention, and I look forward to working with you
+
+TRX: TUPScWTVjM8eNHXoyQnaDdnd9CHdWBMSto
